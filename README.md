@@ -1,0 +1,1 @@
+# Strategi-Scatter-yang-Efektif-di-Mahjong-Ways-2-untuk-Maksimalkan-Kemenangan
